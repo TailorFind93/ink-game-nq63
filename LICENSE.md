@@ -1,4 +1,4 @@
-
+Experience ink game like never before with ink game hidden Script, the #1 Script. Includes anti-ban and speed for unbeatable performance.
 
 
 
